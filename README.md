@@ -1,0 +1,1 @@
+# ShopEasy-Marketing-Strategy-Analysis
